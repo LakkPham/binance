@@ -1,0 +1,2 @@
+# binance
+semoga diterima rek
